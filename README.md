@@ -1,5 +1,1 @@
-#Aplicacion tareas
-
-##Hola mundo
-hola
-
+yeiner es un homosexual
